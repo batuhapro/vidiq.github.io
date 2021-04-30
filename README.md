@@ -1,0 +1,2 @@
+# vidiq.github.io
+VidİQ
